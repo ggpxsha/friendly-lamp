@@ -1,2 +1,2 @@
 # friendly-lamp
-Yay
+Yaaaaaaaaaaaaaaaaaay
